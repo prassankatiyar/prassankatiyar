@@ -8,7 +8,7 @@
 
 📫 How to reach me:
 
-📧 prassankatiyar4@gmail.com
+📧 prassan2001@gmail.com
 
 
 <!---
